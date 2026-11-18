@@ -9,12 +9,12 @@ Software development company based in Jabalpur, Madhya Pradesh, India, founded i
 
 ### Links
 
-- Website: [shptechnology.online](https://www.shptechnology.online/)
-- LinkedIn: [shp-technology](https://www.linkedin.com/in/shp-technology-5b8ba1430)
-- X (Twitter): [@shptech](https://x.com/shptech)
-- Instagram: [@founder.shp](https://www.instagram.com/founder.shp/)
-- Facebook: [SHP Technology](https://www.facebook.com/profile.php?id=61593774120280)
-- WhatsApp: [+91 9301885654](https://wa.me/919301885654)
+- Website: [shptechnology.online](https://www.shptechnology.online)
+- LinkedIn: [linkedin.com/in/shp-technology-5b8ba1430](https://www.linkedin.com/in/shp-technology-5b8ba1430)
+- X (Twitter): [x.com/shptech](https://x.com/shptech)
+- Instagram: [instagram.com/founder.shp](https://www.instagram.com/founder.shp/)
+- Facebook: [facebook.com/profile.php?id=61593774120280](https://www.facebook.com/profile.php?id=61593774120280)
+- WhatsApp: [wa.me/919301885654](https://wa.me/919301885654)
 
 ### Contact
 
